@@ -24,4 +24,5 @@ artstyle by @guikazumizeu on tiktok
 
 
 
-# 𖦹
+# 𖦹 𝓂𝑜𝓇𝒾𝒶𝒽
+
