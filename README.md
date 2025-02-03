@@ -7,7 +7,8 @@
 
  <h3><img align="center" height="30" src="https://github.com/user-attachments/assets/316796bb-5021-439c-929d-6e62d1d6b00c">: 𖦹 art credits 𖦹
 
-𖦹 the original jacob art in the header by @kriegstraum on tiktok
+𖦹 the original jacob art in the top header by @kriegstraum on tiktok
+𖦹 the original jacob art in the bottom header by @Dry_Skin on twt
 
 𖦹 the little jacob in a diff 
 artstyle by @guikazumizeu on tiktok
